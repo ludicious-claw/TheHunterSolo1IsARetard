@@ -1,1 +1,3 @@
-# TheHunterSolo1IsARetard
+# TheHunterSolo1 
+Is A Retard
+WHY WOULD YOU BREAK MY CODE AFTER 4 MONTHS
